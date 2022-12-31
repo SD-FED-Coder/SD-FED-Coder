@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Front End Development**
 
-- 📫 How to reach me **sreedevientrepreneur19@gmail.com**
+- 📫 How to reach me **sreedevi.cse@hotmail.com**
 
 - ⚡ Fun fact **I am Jovial Person**
 
